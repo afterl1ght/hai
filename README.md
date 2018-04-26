@@ -2,7 +2,7 @@
 
 Something about GitHub makes the community more interesting.
 
-Commercial using.
+Commercial use.
 
 Free licenses.
 
